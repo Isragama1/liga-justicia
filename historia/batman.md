@@ -1,0 +1,3 @@
+# Batman
+
+La historia de Batman se centra en Bruce Wayne, un niño rico de Ciudad Gótica que, tras presenciar el asesinato de sus padres, jura venganza contra el crimen, convirtiéndose en un justiciero con disfraz de murciélago para infundir terror en los criminales, utilizando su intelecto, tecnología y habilidades físicas en lugar de superpoderes, como se detalla en Britannica y DC Comics. Creado por Bob Kane y Bill Finger, debutó en 1939 en Detective Comics #27, evolucionando de un héroe más oscuro a uno adaptado a diferentes épocas, manteniendo su identidad como el Caballero de la Noche que protege Gotham. 
