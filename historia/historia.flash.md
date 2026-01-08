@@ -1,0 +1,3 @@
+# Historia de flash
+
+La historia de Flash se remonta a 1940 con Jay Garrick, el primer velocista, un estudiante que obtuvo supervelocidad por vapores químicos y se unió a la Sociedad de la Justicia de América. El Flash más conocido es Barry Allen, un científico forense que en 1956 fue alcanzado por un rayo en un laboratorio de químicos, obteniendo poderes y conectándose a la Fuerza de Velocidad, convirtiéndose en miembro de la Liga de la Justicia. Posteriormente, Wally West (Kid Flash) y Bart Allen (Impulso) también tomaron el manto, extendiendo su legado y explorando la Fuerza de Velocidad, una dimensión que alimenta sus habilidades.  
